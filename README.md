@@ -36,4 +36,7 @@ We help people move toward independence at their own pace, building confidence a
 **Dynamis Care Services**  
 📍 2 Exeter, Ardwick, Manchester M12 4AW, United Kingdom  
 📞 +44 8000 242443  
-📧 [info@dynamiscare.co.uk](mailto:info@dynamiscare)
+📧 [info@dynamiscare.co.uk](mailto:info@dynamiscare.co.uk)  
+🌐 [dynamiscare.co.uk](https://www.dynamiscare.co.uk/)  
+📌 [View on Google Maps](https://maps.app.goo.gl/SRsfZwDhUfjQq6ho9)
+
